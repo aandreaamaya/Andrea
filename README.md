@@ -1,1 +1,3 @@
-# Andrea
+# Andrea Amaya
+# Applied Maths
+# Lov design ♡
