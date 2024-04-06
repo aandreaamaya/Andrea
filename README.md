@@ -1,3 +1,2 @@
-# Andrea Amaya
-# Applied Maths
-# Lov design ♡
+Mex, Applied Maths
+Lov design ♡
