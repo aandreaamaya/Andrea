@@ -1,2 +1,2 @@
 Mex, Applied Maths
-Lov design ♡
+Lov design 
